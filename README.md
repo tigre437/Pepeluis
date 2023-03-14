@@ -1,2 +1,2 @@
 # Pepeluis
-pepeluis va a comprar comida para covayas hoy
+pepeluis va a comprar comida para coayas hoy
